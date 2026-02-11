@@ -12,7 +12,7 @@ Meu objetivo atual é me profissionalizar cada vez mais, consolidar minha base e
 
 ### Instagram: [@pedro.henrique.dev](https://www.instagram.com/pedro.henrique.dev/)
 ### Linkedin: [Pedro Henrique Candido Silva](https://www.linkedin.com/in/pedro-henrique-candido-silva-476134380/)
-### Gmail: [candidosilvapedrohenrique@gmail.com]()
+### Gmail: [candidosilvapedrohenrique@gmail.com](https://mail.google.com/mail/u/0/?fs=1&tf=cm&source=mailto&to=candidosilvapedrohenrique@gmail.com)
 
 
 
